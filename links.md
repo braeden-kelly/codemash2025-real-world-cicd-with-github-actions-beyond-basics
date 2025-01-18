@@ -1,0 +1,3 @@
+- https://chris-ayers.com/
+- https://github.com/codebytes
+- https://discord.com/channels/1127340805741359164/1327991160915886200
